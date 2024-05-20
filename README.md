@@ -1,6 +1,7 @@
 # Divyashreehs
 # 💫 About Me:
-I am a student<br>Looking for good collabration to enhance my knowledge and skills<br>
+I am a student<br>looking forward to enhance the knowledge in technical domain
+<br>
 
 
 ## 🌐 Socials:
