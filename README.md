@@ -1,4 +1,4 @@
-# Divyashreehs
+
 # 💫 About Me:
 # 👋 Hi, I'm Divyashree HS!
 
